@@ -3,3 +3,7 @@
 
 Мои навыки:
 В целом я неплохой челик ;)
+
+Контакты:
+alfredhager0420@gmail.com
+https://t.me/derflla
